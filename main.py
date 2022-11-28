@@ -1,1 +1,1 @@
-init all 
+ZXadcsdc
